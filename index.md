@@ -1,8 +1,8 @@
 ## MAD HATTER/| Handshake root domain
 
-more to see
+more to see ![image](https://user-images.githubusercontent.com/37987346/103473502-55b7a100-4d67-11eb-91c5-872c8c2a6ef5.png)
 
-LOOK WITHIN! [![image](https://user-images.githubusercontent.com/37987346/103435699-6be72500-4be0-11eb-8264-7dcb24c14987.png)](http://shapereality.innerinetcompany.hns.to/)
+LOOK WITHIN!
 
 
 # "I" As The Center Of Gravity Is The Seat Of Unity. 
