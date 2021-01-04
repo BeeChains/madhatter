@@ -4,7 +4,7 @@ more to see ![image](https://user-images.githubusercontent.com/37987346/10347359
 
 LOOK WITHIN!
 
-## [INNER I NET COMPANY](http://shapereality.innerinetcompany.hns.to/) | We "Shape Reality" by establishing the "I" as the center of gravity. This first of its kind buisness is built on a Handshake(HNS) blockchain root level domain that is dismantling the monopoly in 2021 by Looking Within to the Source, at the root of perception. Handshake helps us resolve self sovereignty by allowing true ownership of authentic web space vs. renting a sub-identity on the internet. 
+## [INNER I NET COMPANY](http://shapereality.innerinetcompany.hns.to/) | We "Shape Reality" by establishing the "I" as the center of gravity. This first of its kind buisness is built on a Handshake(HNS) blockchain root level domain that is dismantling the monopoly in 2021 by Looking Within to the Source, at the [root of perception](http://findusontheweb.innericompany.hns.to/). Handshake helps us resolve self sovereignty by allowing true ownership of authentic web space vs. renting a sub-identity on the internet. 
 # "I" As The Center Of Gravity Is The Seat Of Unity. 
 
 
